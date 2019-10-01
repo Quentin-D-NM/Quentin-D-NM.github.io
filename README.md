@@ -1,6 +1,5 @@
-# Quentin Dye
-
 ## Career Objectives 
+
 
 ## Current Projects
 
@@ -8,7 +7,9 @@
 
 ## Education 
 
+
 ## Employment
+
 
 ## Links 
 
